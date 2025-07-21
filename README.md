@@ -1,3 +1,3 @@
 # Digital-Marketing-Courses-in-Bangalore
-[Digital Marketing Courses in Bangalore]([url](https://skillfloor.com/digital-marketing-training-in-bangalore)  Boost your career with our Digital Marketing courses in Bangalore. Learn SEO, PPC, Social Media, and more from industry experts. Get hands-on training and practical skills to excel in the digital world. 
+[Digital Marketing Courses in Bangalore](https://skillfloor.com/digital-marketing-training-in-bangalore)  Boost your career with our Digital Marketing courses in Bangalore. Learn SEO, PPC, Social Media, and more from industry experts. Get hands-on training and practical skills to excel in the digital world. 
 Check out my [website](https://skillfloor.com/digital-marketing-training-in-bangalore) for more information.
